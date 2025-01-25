@@ -1,0 +1,3 @@
+- **Project URL**: https://github.com/Nazmulislam007/edge-project
+- **Upwork Profile**: https://www.upwork.com/freelancers/~01466a27649e182ee7
+- **Linkedin Profile**: https://www.linkedin.com/in/nazmuln7/
